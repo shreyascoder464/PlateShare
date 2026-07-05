@@ -71,4 +71,5 @@ To make food sharing simple, fast, and impactful—so that no good food goes to 
 
 ---
 
-Built with care ❤️ by Oggy
+Built with care ❤️ by Shreyuu
+
